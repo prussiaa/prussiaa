@@ -1,8 +1,8 @@
 <p align="center">
-hello, hi. ameferryman/valentine
+hello, hi. ameferryman/valentine/jacob
 </p>
 <p align="center">
-um i go by no pronouns ok? or he/she/its if friends on main
+any prns not including they/them and whatnot. im genderfluid
 </p>
 <p align="center">
     <img width="300" src="https://files.catbox.moe/uqwwgj.png" alt="six seveenn">
