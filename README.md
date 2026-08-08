@@ -1,5 +1,5 @@
 <p align="center">
-call me ameerica / valentine.
+call me america / valentine.
 </p>
 <p align="center">
     hy / hym or gun related neos.
@@ -8,5 +8,11 @@ call me ameerica / valentine.
     <img width="300" src="https://files.catbox.moe/uqwwgj.png" alt="six seveenn">
 </p>
 <p align="center">  
-byi: i am easily prone to being irritable, more in my main's information. Please int with slight caution/care if possible!
+byi: i am easily prone to being irritable, and I suspect OSDD-1a. Please int carefully if possible, but i'm fun to joke around with.
 </p>
+<p align="center">  
+c/h freely if i'm alone, please don't if my friends are with me.
+</p>
+<p align="center">
+  <i><a href="https://bloodytea.atabook.org/">atabook</a></i> <i><a href="https://etherealgarden.straw.page/"> strawpage</a></i> <i><a href="https://pronouns.cc/@bloodytea">prns.cc</a></i> <i><a href="https://rentry.co/ancientwounds">rentry</a></i>
+</p>   
