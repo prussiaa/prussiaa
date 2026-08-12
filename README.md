@@ -8,11 +8,11 @@ call me america / valentine.
     <img width="300" src="https://files.catbox.moe/uqwwgj.png" alt="six seveenn">
 </p>
 <p align="center">  
-byi: i am easily prone to being irritable, and I suspect OSDD-1a. Please int carefully if possible, but i'm fun to joke around with.
+byi: i am easily prone to being irritable, and I suspect OSDD-1a. Please intwith slight care/caution if possible, but i'm fun to joke around with.
 </p>
 <p align="center">  
-c/h freely if i'm alone, please don't if my friends are with me.
+c/h freely if i'm alone, ask if i'm with more than 2 people.
 </p>
 <p align="center">
-  <i><a href="https://bloodytea.atabook.org/">atabook</a></i> <i><a href="https://etherealgarden.straw.page/"> strawpage</a></i> <i><a href="https://pronouns.cc/@bloodytea">prns.cc</a></i> <i><a href="https://rentry.co/ancientwounds">rentry</a></i>
+  <i><a href="https://bloodytea.atabook.org/">atabook</a></i> <i><a href="https://etherealgarden.straw.page/">strawpage</a></i> <i><a href="https://pronouns.cc/@bloodytea">prns.cc</a></i>
 </p>   
