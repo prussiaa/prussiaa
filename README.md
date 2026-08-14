@@ -10,3 +10,6 @@ $${\color{#E9B483}c/h \space\ freely \space\  if \space\ i \space\ am \space\ al
 <p align="center">
   <i><a href="https://bloodytea.atabook.org/">atabook</a></i> <i><a href="https://etherealgarden.straw.page/">strawpage</a></i> <i><a href="https://pronouns.cc/@bloodytea">prns.cc</a></i>
 </p>   
+<p align="center">
+    <img width="300" src="https://i.pinimg.com/736x/c1/4d/7a/c14d7a1e54237f098d25573bdafb5146.jpg" alt="67">
+</p>
