@@ -7,7 +7,7 @@ $${\color{#7C6068}valentine \space\ \color{#63280F}oder \space\ \color{#CC8E3B}a
 <p align="center">  
 $${\color{#E9B483}c/h \space\ freely \space\  if \space\ i \space\ am \space\ alone, \space\ ask \space\ if \space\ i \space\ am \space\ with \space\ a \space\ friend.}$$
 
-$${\color{#723921}int \space\ with \space\ slight \space\ care \space\ and \space\ caution \space\ 24/7. \space\ I \space\ am \space\ a \space\ very \space\ energetic \space\ person.}$$
+$${\color{#723921}int \space\ with \space\ caution \space\ 24/7 \space\ unless \space\ sol. \space\ I \space\ am \space\ a \space\ very \space\ energetic \space\ person, \space\ and \space\ i \space\ easily \space\ get \space\ mad.}$$
 $$<p align="center">
   <i><a href="https://bloodytea.atabook.org/">atabook</a></i> <i><a href="https://etherealgarden.straw.page/">strawpage</a></i> <i><a href="https://pronouns.cc/@bloodytea">prns.cc</a></i>
 </p>
