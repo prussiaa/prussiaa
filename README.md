@@ -8,10 +8,6 @@ $${\color{#7C6068}valentine \space\ \color{#63280F}oder \space\ \color{#CC8E3B}a
 <p align="center">  
 $${\color{#E9B483}c/h \space\ freely \space\  if \space\ i \space\ am \space\ alone, \space\ ask \space\ if \space\ i \space\ am \space\ with \space\ a \space\ friend.}$$
 
-$${\color{#723921}int \space\ with \space\ caution \space\ 24/7 \space\ unless \space\ sol. \space\ I \space\ am \space\ a \space\ very \space\ energetic \space\ person, \space\ and \space\ i \space\ easily \space\ get \space\ mad.}$$
-$$<p align="center">
-  <i><a href="https://bloodytea.atabook.org/">atabook</a></i> <i><a href="https://etherealgarden.straw.page/">strawpage</a></i> <i><a href="https://pronouns.cc/@bloodytea">prns.cc</a></i>
-</p>
   <details closed>
 <summary> $${\color{#7C6068}pony town / byi}$$</summary>
 ⠀
@@ -41,6 +37,11 @@ yeah. all i could think of right now. might change.
 last updated 8/16/26 or 16/8/26
 
 </details>
+
+<p align="center">
+  <i><a href="https://bloodytea.atabook.org/">atabook</a></i> <i><a href="https://etherealgarden.straw.page/">strawpage</a></i> <i><a href="https://pronouns.cc/@bloodytea">prns.cc</a></i>
+</p>
+
 <p align="center">
     <img width="300" src="https://i.pinimg.com/736x/c1/4d/7a/c14d7a1e54237f098d25573bdafb5146.jpg" alt="67">
 </p>
