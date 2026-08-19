@@ -9,7 +9,7 @@ $${\color{#7C6068}valentine \space\ \color{#63280F}oder \space\ \color{#CC8E3B}a
 $${\color{#E9B483}c/h \space\ freely \space\  if \space\ i \space\ am \space\ alone, \space\ ask \space\ if \space\ i \space\ am \space\ with \space\ a \space\ friend.}$$
 
 <details closed>
-<summary> $${\color{#cad2c5}pony town / byi}$$</summary>
+<summary>pony town / byi</summary>
 ⠀
 
 Always assume i'm named Val. Or ferry. whatever works, check my prns.cc.
