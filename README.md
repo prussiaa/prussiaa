@@ -19,7 +19,7 @@ $${\color{#F9D0C5}he \space\  / \space\ him \space\  \color{#C996B2}, \space\ sn
 <summary>$${\color{#F9D0C5}extended \space\ \color{#C996B2}info}$$</summary>
 ⠀
 <p align="center">
-<img width = "500" height="50" src="https://files.catbox.moe/2gpbqb.png" alt="67">
+<img width = "500" src="https://files.catbox.moe/ukauor.png" alt="67">
 
 hi, i'm prussia  / ferry! or whatever works for you, as long as it's not nsfw, or check our pronouns.cc!
 
