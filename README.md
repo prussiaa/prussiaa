@@ -28,17 +28,17 @@ i joke around a lot, and don't know if anything's serious until too late. toneta
 
 i have a partner named canada / matthew! (yumeship, nonsharing), and ferry has karl and ameferry g&b. (yumeship, selective sharing.) we adore any compliments about them, questions, etc! I'm happy to learn more about the relationships we have, so ask anything!
 
-i love doing rentries for people, you can ask for one and i'll likely make a base for you ! sign my atabook if you want to ask .. but it might be basic . sorry. other than that, I'm worse at decor at other websites, especially strawpage, for some reason .. :Sweat:
+i love doing rentry pages for people, you can ask for one and i'll likely make a base for you ! sign my atabook if you want to ask .. but it might be basic . sorry. other than that, I'm worse at decor at other websites, especially strawpage, for some reason .. :Sweat:
 
 pony town:
 
-c+h freely unless my brother [@ger-ita](https://github.com/ger-ita) is with me unless you ASK us both !!!! Or if my friends (linked in profile) are sitting with me !! i'm friendly to sit with, maybe you can be my friend too !!! 
+c+h freely unless my brother [@ger-ita](https://github.com/ger-ita) is with me unless you ASK us both !!!! Or if my friends (linked in profile) are sitting with me !! i'm friendly to sit with, but i can get pissy / irritated if someone is covering me when I rejoin from disconnecting, overall i'm friendly, and maybe you can be my friend too !!
 
-i don't block unless you hurt anyone in the sys , or I find anything bad out !! you should be good unless youre in the dni , or have a problematic unforgivable past ! if you don't ... my atabook is blank, sign it please !! I will reply asap
+i don't block unless you hurt anyone in the sys , or I find anything bad out !! you should be good unless youre in the dni , or have a problematic unforgivable past ! if you don't ... my atabook is blank, sign it please !! I will reply asap. also read my links if you do plan to sign , unless it's complimenting a skin of mine!
 
-this is prone to change, read below for a potentially triggering dni list, and important information.
+this is prone to change, read below for a potentially triggering dni list, and important information! have a good day, tschüss!
 
-imporntant :
+important :
 
 ⚠⚠ DO NOT INTERACT IF YOU HAVE A HISTORY OF: ⚠⚠
 
