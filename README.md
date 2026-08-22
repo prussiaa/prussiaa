@@ -24,7 +24,7 @@ my beloved partner is canada / matty <3 dni if you're a double unless I int firs
 
 pony town:
 
-c+h freely unless my brother [@ger-ita]() is with me unless you ASK us both !!!!
+c+h freely unless my brother [@ger-ita](https://github.com/ger-ita) is with me unless you ASK us both !!!!
 
 i don't block unless you hurt anyone in the sys , or I find anything bad out !! you should be good unless youre in the dni , or have a problematic unforgivable past ! if you don't ... my atabook is blank, sign it please !! I will reply asap
 
