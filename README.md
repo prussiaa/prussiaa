@@ -41,5 +41,5 @@ HEAVILY SUSPECTING OSDD-1a SYSTEM, THIS IS WHY I'M TALKING ABOUT PRUSS AND FERRY
 </details>
 
 <p align="center">
-  <i><a href="https://bloodytea.atabook.org/">atabook</a></i> <i><a href="https://etherealgarden.straw.page/">strawpage</a></i> <i><a href="https://pronouns.cc/@bloodytea">prns.cc</a></i>
+  <i><a href="https://bloodytea.atabook.org/">atabook</a></i> <i><a href="https://pronouns.cc/@bloodytea">prns.cc</a></i>
 </p>
