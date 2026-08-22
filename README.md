@@ -20,23 +20,23 @@ $${\color{#F9D0C5}he \space\  / \space\ him \quad\  \color{#C996B2} \space\ snow
 <p align="center">
 <img width = "500" src="https://files.catbox.moe/ukauor.png" alt="67">
 
-hi, i'm prussia  / ferry! or whatever works for you, as long as it's not nsfw, or check our pronouns.cc!
+hello! i'm prussia! there's also ferry. We're both alters in a system, hosted by Val , who's taking a mental health break. we suspect osdd-1a. we both go by he / him , but ferry goes by snow/blood neos as well! If he tells you he's controlling the body, he'll likely want those used. we both are 39 and 20 respectively.
 
-iwc all times , ferry can easily lash out at you if you make him mad, but i'm pretty chill! I am usually paired with blood as well >_0 we are 39 & 20 respectively! we are both also very self - centred , but ferry is more . I care for others a lot more ! and i'm mcuh more energetic / friendly
+i'm very energetic, and hyper. I'm excited to socialise, but I get drained easily due to him co-fronting a lot, and affecting me . I am an energetic chud a lot, though !! I am also a listener. but with adhd diagnosed, we have a hard time focusing, or easily get distracted, and may ask you to repeat yourself,  because i may not be listening. We also have a bad memory collectively.
 
-i am a bit naive , but i'm sure to state boundaries if needed! talk to me about stuff, I will listen, I'm just bad at comfort a bit! I do have some decent advice though, and i'm decent at convos as well, and i'm pretty social! feel free to int with me ^_^
+i joke around a lot, and don't know if anything's serious until too late. tonetags are **greatly** appreciated, please and thank you ! we also struggle with showing a large range of emotions, and have struggled with trauma years 5-9. We are unaware if anything a person does is bad unless notified .
 
-i have a typing quirk where i space out puncuation / symbols, tell me if you need me to stop for you specifically !!
+i have a partner named canada / matthew! (yumeship, nonsharing), and ferry has karl and ameferry g&b. (yumeship, selective sharing.) we adore any compliments about them, questions, etc! I'm happy to learn more about the relationships we have, so ask anything!
 
-my beloved partner is canada / matty <3 dni if you're a double unless I int first, and ferry's f/os are karl & american ferryman from g&b ! doubles iwec for snow.
+i love doing rentries for people, you can ask for one and i'll likely make a base for you ! sign my atabook if you want to ask .. but it might be basic . sorry. other than that, I'm worse at decor at other websites, especially strawpage, for some reason .. :Sweat:
 
 pony town:
 
-c+h freely unless my brother [@ger-ita](https://github.com/ger-ita) is with me unless you ASK us both !!!!
+c+h freely unless my brother [@ger-ita](https://github.com/ger-ita) is with me unless you ASK us both !!!! Or if my friends (linked in profile) are sitting with me !! i'm friendly to sit with, maybe you can be my friend too !!! 
 
 i don't block unless you hurt anyone in the sys , or I find anything bad out !! you should be good unless youre in the dni , or have a problematic unforgivable past ! if you don't ... my atabook is blank, sign it please !! I will reply asap
 
-this is prone to change
+this is prone to change, read below for a potentially triggering dni list, and important information.
 
 imporntant :
 
