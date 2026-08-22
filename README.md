@@ -20,9 +20,9 @@ $${\color{#F9D0C5}I \space\ DO \space\ \color{#9E71A0}NOT \space\ \color{#F9D0C5
 <summary>$${\color{#F9D0C5}extended \space\ \color{#C996B2}info}$$</summary>
 ⠀
 <p align="center">
-<img width="800" src="https://i.postimg.cc/HstKY7ND/gd3f8c.png" alt="67">
+<img width = "500" height="50" src="https://files.catbox.moe/2gpbqb.png" alt="67">
 
-hi, i'm prussia  / ferry! or whatever works for you, as long as it's not nsfw, or check our pronouns . cc !
+hi, i'm prussia  / ferry! or whatever works for you, as long as it's not nsfw, or check our pronouns.cc!
 
 iwc all times , ferry can easily lash out at you if you make him mad, but i'm pretty chill! I am usually paired with blood as well >_0 we are 39 & 20 respectively! we are both also very self - centred , but ferry is more . I care for others a lot more ! and i'm mcuh more energetic / friendly
 
