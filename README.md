@@ -12,8 +12,6 @@ $${\color{#F9D0C5}enboy \space\ male \space\ , \space\ mlm \space\ lithromantic}
 
 $${\color{#F9D0C5}he \space\  / \space\ him \space\  \color{#C996B2}, \space\ snow \space\  / \space\ blood}$$
 
-$${\color{#F9D0C5}I \space\ DO \space\ \color{#9E71A0}NOT \space\ \color{#F9D0C5}SHIP \space\ SIBLING \space\ X \space\ SIBLING, \space\ DO \space\ NOT \space\ ASSUME \space\ THIS, \space\ PLEASE!!!!}$$
-
 
 <p align="center"> 
 
