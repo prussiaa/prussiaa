@@ -12,7 +12,6 @@ $${\color{#F9D0C5}enboy \space\ male \space\ , \space\ mlm \space\ lithromantic}
 
 $${\color{#F9D0C5}he \space\  / \space\ him \space\  \color{#C996B2}, \space\ snow \space\  / \space\ blood}$$
 
-
 <p align="center"> 
 
 <details closed>
@@ -52,3 +51,5 @@ HEAVILY SUSPECTING OSDD-1a SYSTEM, THIS IS WHY I'M TALKING ABOUT PRUSS AND FERRY
 <p align="center">
   <i><a href="https://rentry.co/boat-explosion">rentry</a></i> <i><a href="https://pronouns.cc/@bloodytea">prns.cc</a></i> <i><a href="https://bloodytea.atabook.org/">atabook</a></i>
 </p>
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31jqi4ggf3dxjk4qpg6p4deelgim&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
