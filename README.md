@@ -6,16 +6,16 @@
 <p align="center">
 <img width = "500" src="https://files.catbox.moe/ukauor.png" alt="67">
    
-$${\color{#F9D0C5}prussia \space\ \color{#C996B2}oder \space\ \color{#F9D0C5}gilbert \space\ \color{#9E71A0}oder \space\ \color{#C996B2}ferryman}$$
+$${\color{#F9D0C5}prussia \quad\ \color{#9E71A0}oder \quad\ \color{#C996B2}ferryman}$$
 
-$${\color{#F9D0C5}enboy \space\ male \space\ , \space\ mlm \space\ lithromantic}$$
+$${\color{#F9D0C5}enboy \space\ male \quad\ \space\ mlm \space\ lithromantic}$$
 
-$${\color{#F9D0C5}he \space\  / \space\ him \space\  \color{#C996B2}, \space\ snow \space\  / \space\ blood}$$
+$${\color{#F9D0C5}he \space\  / \space\ him \quad\  \color{#C996B2} \space\ snow \space\  / \space\ blood}$$
 
 <p align="center"> 
 
 <details closed>
-<summary>$${\color{#F9D0C5}extended \space\ \color{#C996B2}info}$$</summary>
+<summary>$${\color{#F9D0C5}extended \quad\ \color{#C996B2}info}$$</summary>
 ⠀
 <p align="center">
 <img width = "500" src="https://files.catbox.moe/ukauor.png" alt="67">
