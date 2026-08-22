@@ -1,16 +1,26 @@
 <div align="center">
 <p align="center">
-<img width="300" src="https://files.catbox.moe/2we2dg.png" alt="67">
+<img width="300" src="https://files.catbox.moe/2we2dg.png" align="left">
+<p align="center">
+<img width="600" src="https://files.catbox.moe/t5yj5v.png" alt="67">
+
    
-$${\color{#F9D0C5}prussia \space\ \color{#9E71A0}oder \space\ \color{#C996B2}ferry}$$
+$${\color{#F9D0C5}prussia \space\ \color{#C996B2}oder \space\ \color{#F9D0C5}gilbert \space\ \color{#9E71A0}oder \space\ \color{#C996B2}ferryman}$$
+
+$${\color{#F9D0C5}enboy \space\ male \space\ , \space\ mlm \space\ lithromantic}$$
+
+$${\color{#F9D0C5}he \space\  / \space\ him \space\  \color{#C996B2}, \space\ snow \space\  / \space\ blood}$$
+
+$${\color{#F9D0C5}I \space\ DO \space\ \color{#9E71A0}NOT \space\ \color{#F9D0C5}SHIP \space\ SIBLING \space\ X \space\ SIBLING, \space\ DO \space\ NOT \space\ ASSUME \space\ THIS, \space\ PLEASE!!!!}$$
+
+
 <p align="center"> 
 
 <details closed>
-<summary>$${\color{#F9D0C5}pony town / intro}$$</summary>
+<summary>$${\color{#F9D0C5}extended \space\ \color{#C996B2}info}$$</summary>
 ⠀
-
 <p align="center">
-<img width="600" src="https://files.catbox.moe/t5yj5v.png" alt="67">
+<img width="800" src="https://i.postimg.cc/HstKY7ND/gd3f8c.png" alt="67">
 
 hi, i'm prussia  / ferry! or whatever works for you, as long as it's not nsfw, or check our pronouns . cc !
 
@@ -41,5 +51,5 @@ HEAVILY SUSPECTING OSDD-1a SYSTEM, THIS IS WHY I'M TALKING ABOUT PRUSS AND FERRY
 </details>
 
 <p align="center">
-  <i><a href="https://bloodytea.atabook.org/">atabook</a></i> <i><a href="https://pronouns.cc/@bloodytea">prns.cc</a></i>
+  <i><a href="https://rentry.co/boat-explosion">rentry</a></i> <i><a href="https://pronouns.cc/@bloodytea">prns.cc</a></i> <i><a href="https://bloodytea.atabook.org/">atabook</a></i>
 </p>
