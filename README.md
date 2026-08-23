@@ -26,6 +26,8 @@ iwc all times. I can easily get angry, but i'm very energetic, and hyper! I'm ex
 
 i joke around a lot, and don't know if anything's serious until too late. tone tags are **greatly** appreciated, please and thank you ! we also struggle with showing a large range of emotions, and have struggled with trauma years 5-9. We are unaware if anything a person does is bad unless notified .
 
+all of us in the system like guts and blackpowder in some amount , and we're defensive about it because we think we're the #1 fans. iwc if you think youre the n1 fan because we are and you're not LOL!!!!!! ok, but we do like history topics a lot , we just don't research a lot about it.
+
 i have a partner named canada / matthew! (yumeship, nonsharing), and ferry has karl and ameferry g&b. (yumeship, selective sharing.) we adore any compliments about them, questions, etc! I'm happy to learn more about the relationships we have, so ask anything! It's greatly appreciated. ^3^
 
 i love doing rentry pages for people, you can ask for one and i'll likely make a base for you ! sign my atabook if you want to ask .. but it might be basic . sorry. other than that, I'm worse at decor at other websites, especially strawpage, for some reason .. 😓 Sorry if that's not what you like
