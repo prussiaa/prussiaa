@@ -8,9 +8,9 @@
    
 $${\color{#F9D0C5}prussia \quad\ \color{#9E71A0}oder \quad\ \color{#C996B2}ferryman}$$
 
-$${\color{#F9D0C5}enboy \space\ male \quad\ \space\ mlm \space\ lithromantic}$$
+$${\color{#C996B2}enboy \space\ \color{#9E71A0}male \quad\ \color{#F9D0C5}\space\ mlm \space\ lith\color{#C996B2}romantic}$$
 
-$${\color{#F9D0C5}he \space\  / \space\ him \quad\  \color{#C996B2} \space\ snow \space\  / \space\ blood}$$
+$${\color{#F9D0C5}he \space\  / \space\ \color{#C996B2}him \quad\  \color{#C996B2} \space\ snow \space\  \color{#9E71A0}/ \space\ blood}$$
 
 <p align="center"> 
 
