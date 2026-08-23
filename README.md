@@ -6,16 +6,16 @@
 <p align="center">
 <img width= "500" src="https://files.catbox.moe/ukauor.png" alt="67">
    
-$${\color{#F9D0C5}prussia \quad\ \color{#9E71A0}oder \quad\ \color{#C996B2}ferryman}$$
+$${\color{#F9D0C5}\textsf{prussia \quad\ \color{#9E71A0}oder \quad\ \color{#C996B2}ferryman}}$$
 
-$${\color{#C996B2}enboy \space\ \color{#9E71A0}male \quad\ \color{#F9D0C5}\space\ mlm \space\ lith\color{#C996B2}romantic}$$
+$${\color{#C996B2}\textsf{enboy \quad\ \color{#9E71A0}male \quad\ \color{#F9D0C5}\quad\ mlm \quad\ lith\color{#C996B2}romantic}}$$
 
-$${\color{#F9D0C5}he \space\  / \space\ \color{#C996B2}him \quad\  \color{#C996B2} \space\ snow \space\  \color{#9E71A0}/ \space\ blood}$$
+$${\color{#F9D0C5}\textsf{he \quad\  / \quad\ \color{#C996B2}him \quad\  \color{#C996B2} \quad\ snow \quad\  \color{#9E71A0}/ \quad\ blood}}$$
 
 <p align="center"> 
 
 <details closed>
-<summary>$${\color{#F9D0C5}extended \quad\ \color{#C996B2}info}$$</summary>
+<summary>$${\color{#F9D0C5}\textsf{extended \quad\ \color{#C996B2}info}}$$</summary>
 ⠀
 <p align="center">
 <img width = "500" src="https://files.catbox.moe/ukauor.png" alt="67">
