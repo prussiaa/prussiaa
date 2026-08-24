@@ -20,7 +20,7 @@ $${\color{#F9D0C5}\textsf{he \quad\  / \quad\ \color{#C996B2}him \quad\  \color{
 <p align="center">
 <img width = "500" src="https://files.catbox.moe/ukauor.png" alt="67">
 
-hello! i'm prussia! there's also ferry. We're both alters in a system, hosted by Val , who's taking a mental health break. we suspect osdd-1a. we both go by he / him , but ferry goes by snow/blood neopronouns as well! If he tells you he's controlling the body, he'll likely want those used. we both are 39 and 20 respectively.
+hello! i'm prussia! there's also ferry and val... We're both alters in a system, hosted by Val. we suspect osdd-1a. we both go by he / him , but ferry goes by snow/blood neopronouns as well! If he tells you he's controlling the body, he'll likely want those used. we both are 39 and 20 respectively.
 
 iwc all times. I can easily get angry, but i'm very energetic, and hyper! I'm excited to socialise, but I get drained easily due to him co-fronting a lot, and affecting me . I am an energetic chud a lot, though !! I am also a listener. but with adhd diagnosed, we have a hard time focusing, or easily get distracted, and may ask you to repeat yourself,  because i may not be listening. We also have a bad memory collectively.
 
