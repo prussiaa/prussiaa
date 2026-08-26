@@ -20,13 +20,15 @@ $${\color{#F9D0C5}\textsf{he \quad\  / \quad\ \color{#C996B2}him \quad\  \color{
 <p align="center">
 <img width = "500" src="https://files.catbox.moe/ukauor.png" alt="67">
 
-hello! i'm prussia! there's also ferry and val... We're both alters in a system, hosted by Val. we suspect osdd-1a. we both go by he / him , but ferry goes by snow/blood neopronouns as well! If he tells you he's controlling the body, he'll likely want those used. we both are 39 and 20 respectively.
+hello! i'm prussia! there's also ferry and val... we suspect osdd-1a. we both go by he / him , but ferry goes by snow/blood neopronouns as well! If he tells you he's controlling the body, he'll likely want those used. we both are 39 and 20 respectively.
 
-iwc all times. I can easily get angry, but i'm very energetic, and hyper! I'm excited to socialise, but I get drained easily due to him co-fronting a lot, and affecting me . I am an energetic chud a lot, though !! I am also a listener. but with adhd diagnosed, we have a hard time focusing, or easily get distracted, and may ask you to repeat yourself,  because i may not be listening. We also have a bad memory collectively.
+iwc all times. I can easily get angry, but i'm very energetic, and hyper! I'm excited to socialise, but I get drained easily due to him co-fronting a lot, and affecting me . I am an energetic chud a lot, though !! I am also a listener. but with adhd diagnosed, we have a hard time focusing, or easily get distracted, and may ask you to repeat yourself,  because i may not be listening. We also have a bad memory.
 
-i joke around a lot, and don't know if anything's serious until too late. tone tags are **greatly** appreciated, please and thank you ! we also struggle with showing a large range of emotions, and have struggled with trauma years 5-9. We are unaware if anything a person does is bad unless notified .
+my main, [@roadtosleepyhollow](https://github.com/roadtosleepyhollow), is more updated. Read there.
 
-all of us in the system like guts and blackpowder in some amount , and we're defensive about it because we think we're the #1 fans. iwc if you think youre the n1 fan because we are and you're not LOL!!!!!! ok, but we do like history topics a lot , we just don't research a lot about it.
+i joke around a lot, and don't know if anything's serious until too late. tone tags are **greatly** appreciated, please and thank you ! we also struggle with showing a large range of emotions, and have struggled with trauma at 5-9. We are unaware if anything a person does is bad unless notified.
+
+all of us in the system like guts and blackpowder in some amount , and we're defensive about it because we think we're the #1 fans. iwcuf if you think youre the n1 fan because we are and you're not LOL!!!!!! ok, but we do like history topics a lot , we just don't research a lot about it.
 
 i have a partner named canada / matthew! (yumeship, nonsharing), and ferry has karl and ameferry g&b. (yumeship, selective sharing.) we adore any compliments about them, questions, etc! I'm happy to learn more about the relationships we have, so ask anything! It's greatly appreciated. ^3^
 
@@ -36,7 +38,7 @@ pony town:
 
 c+h freely unless my brother [@ger-ita](https://github.com/ger-ita) is with me. unless you ASK us both !!!! Or if my friends (linked in profile) are sitting with me !! i'm friendly to sit with, but i can get pissed / irritated if someone is covering me when I rejoin from disconnecting/waking up, overall i'm friendly, though! and maybe you can be my friend too !! Just tread carefully , I can lash out, especially at random people .
 
-i don't block unless you hurt anyone in the sys , or I find anything bad out !! you should be good unless youre in the dni , or have a problematic unforgivable past ! if you don't ... my atabook is blank, sign it please !! I will reply asap. also read my links if you do plan to sign , unless it's complimenting a skin of mine!
+i don't block unless you hurt me , or I find anything bad out !! you should be good unless youre in the dni , or have a problematic unforgivable past ! if you don't ... my atabook is blank, sign it please !! I will reply asap. also read my links if you do plan to sign , unless it's complimenting a skin of mine!
 
 this is prone to change, read below for a potentially triggering dni list, and important information! have a good day, tschüss!
 
@@ -45,8 +47,6 @@ important :
 ⚠⚠ DO NOT INTERACT IF YOU HAVE A HISTORY OF: ⚠⚠
 
 [RADQUEERNESS](https://lgbtqia.wiki/wiki/Radqueer) (includes, but not limited to; transrace, transage, and "being" transabled, and xenosatanism.), RACISM (yes, this includes making characters, specifically POC most commonly, much paler than in canon, or you don't support diversity, etc.), you have any, and I mean ***any*** [PARAPHILIC URGES](https://en.wikipedia.org/wiki/Paraphilia) acted upon the said para. (mostly  but not limited to ZOOPHILIA, NECROPHILIA, and PEDOPHILES. there's more.) Also don't interact if you have acted out on DARK SHIPPING and it's similar types, BADLY INFLUENCE PEOPLE on purpose, [BE OVERLY SEXUAL](https://en.wikipedia.org/wiki/Sexual_assault) towards MINORS as an ADULT in ANY ways (includes [CSAM](https://en.wikipedia.org/wiki/Child_pornography) / [CP](https://en.wikipedia.org/wiki/Child_pornography)), [GROOMING](https://en.wikipedia.org/wiki/Sexual_grooming) history in ANY way, HARASSMENT history, you talk about any kind of **serious topics** ([THE EPSTIEN FILES](https://en.wikipedia.org/wiki/Epstein_files), [DIDDY](https://en.wikipedia.org/wiki/Diddy_parties), etc.) **jokingly**. You are a bad person, and I believe you can't change your ways, even if you were mentally ill then, or changed your ways now unless you have valid proof. 
-
-HEAVILY SUSPECTING OSDD-1a SYSTEM, THIS IS WHY I'M TALKING ABOUT PRUSS AND FERRY AS DIFFERENT PEOPLE !!!! we are bodily 14 turning 15
 
 </details>
 
