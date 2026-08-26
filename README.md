@@ -2,7 +2,7 @@
 <p align="right">
 <img width="850" height="200" src="https://files.catbox.moe/t5yj5v.png" alt="67">
 <p align="center">
-<img height="320" src="https://files.catbox.moe/2we2dg.png" align="left">
+<img height="320" src="https://files.catbox.moe/2we2dg.png" align="right">
 <p align="center">
 <img width= "500" src="https://files.catbox.moe/ukauor.png" alt="67">
    
