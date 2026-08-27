@@ -26,6 +26,9 @@ iwc all times. I can easily get angry, but i'm very energetic, and hyper a lot o
 
 i joke around a lot, and don't know if anything's serious until too late. tone tags are **greatly** appreciated, please and thank you ! i also struggle with showing a large range of emotions, and have struggled with trauma at 5-9. i am unaware if anything a person does is bad unless notified. my main, [@roadtosleepyhollow](https://github.com/roadtosleepyhollow), is more updated, Read there
 
+  main: [@roadtosleepyhollow](https://github.com/roadtosleepyhollow)
+  
+  alt: [@bloody-tea](https://github.com/bloody-tea), [@prussiaa](https://github.com/prussiaa)
 
 pony town:
 
