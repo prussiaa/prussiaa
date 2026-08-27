@@ -20,19 +20,12 @@ $${\color{#F9D0C5}\textsf{he \quad\  / \quad\ \color{#C996B2}him \quad\  \color{
 <p align="center">
 <img width = "500" src="https://files.catbox.moe/ukauor.png" alt="67">
 
-hello! i'm prussia! there's also ferry and val... we suspect osdd-1a. we both go by he / him , but ferry goes by snow/blood neopronouns as well! If he tells you he's controlling the body, he'll likely want those used. we both are 39 and 20 respectively.
+hi, i'm val, Prussia, or ferryman! i'm a minor, my birthday's on august 29th, and i suspect osdd-1a. i go by hy/hym, or he/him depending on my moods. i show some narcissistic, lying, and angry behaviors, and trying to better myself slowly. I have a big self image as well, which makes me prone to insults about my apperances, irl or online
 
-iwc all times. I can easily get angry, but i'm very energetic, and hyper! I'm excited to socialise, but I get drained easily due to him co-fronting a lot, and affecting me . I am an energetic chud a lot, though !! I am also a listener. but with adhd diagnosed, we have a hard time focusing, or easily get distracted, and may ask you to repeat yourself,  because i may not be listening. We also have a bad memory.
+iwc all times. I can easily get angry, but i'm very energetic, and hyper a lot of the time. I'm excited to socialise, but I easily get drained, I am also a listener. but with adhd diagnosed, i have a hard time focusing, or easily get distracted, and may ask you to repeat yourself,  because i may not be listening, or i misread what you say. i also have a trash memory, so domn't be suprised if i don't remember something
 
-my main, [@roadtosleepyhollow](https://github.com/roadtosleepyhollow), is more updated. Read there.
+i joke around a lot, and don't know if anything's serious until too late. tone tags are **greatly** appreciated, please and thank you ! i also struggle with showing a large range of emotions, and have struggled with trauma at 5-9. i am unaware if anything a person does is bad unless notified. my main, [@roadtosleepyhollow](https://github.com/roadtosleepyhollow), is more updated, Read there
 
-i joke around a lot, and don't know if anything's serious until too late. tone tags are **greatly** appreciated, please and thank you ! we also struggle with showing a large range of emotions, and have struggled with trauma at 5-9. We are unaware if anything a person does is bad unless notified.
-
-all of us in the system like guts and blackpowder in some amount , and we're defensive about it because we think we're the #1 fans. iwcuf if you think youre the n1 fan because we are and you're not LOL!!!!!! ok, but we do like history topics a lot , we just don't research a lot about it.
-
-i have a partner named canada / matthew! (yumeship, nonsharing), and ferry has karl and ameferry g&b. (yumeship, selective sharing.) we adore any compliments about them, questions, etc! I'm happy to learn more about the relationships we have, so ask anything! It's greatly appreciated. ^3^
-
-i love doing rentry pages for people, you can ask for one and i'll likely make a base for you ! sign my atabook if you want to ask .. but it might be basic . sorry. other than that, I'm worse at decor at other websites, especially strawpage, for some reason .. 😓 Sorry if that's not what you like
 
 pony town:
 
