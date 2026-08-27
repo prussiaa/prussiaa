@@ -20,8 +20,6 @@ $${\color{#F9D0C5}\textsf{he \quad\  / \quad\ \color{#C996B2}him \quad\  \color{
 <p align="center">
 <img width = "500" src="https://files.catbox.moe/ukauor.png" alt="67">
 
-[![Hits](https://hits.sh/github.com/RadioheadLover/hits.svg?style=plastic&label=%E2%80%B9%F0%9D%9F%B9&color=ebbbff&labelColor=FAD5C5)](https://hits.sh/github.com/RadioheadLover/hits/)
-
 hi, i'm val, Prussia, or ferryman! i'm a minor, my birthday's on august 29th, and i suspect osdd-1a. i go by hy/hym, or he/him depending on my moods. i show some narcissistic, lying, and angry behaviors, and trying to better myself slowly. I have a big self image as well, which makes me prone to insults about my apperances, irl or online
 
 iwc all times. I can easily get angry, but i'm very energetic, and hyper a lot of the time. I'm excited to socialise, but I easily get drained, I am also a listener. but with adhd diagnosed, i have a hard time focusing, or easily get distracted, and may ask you to repeat yourself,  because i may not be listening, or i misread what you say. i also have a trash memory, so domn't be suprised if i don't remember something
